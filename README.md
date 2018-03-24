@@ -1,2 +1,0 @@
-# innokentiy
-GitHub Pages
